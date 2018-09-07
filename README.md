@@ -1,1 +1,3 @@
-Premiere semaine wild
+Premiere semaine wild!
+
+Enfin vendredi
